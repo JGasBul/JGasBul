@@ -7,7 +7,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/pepegascóbule/](https://www.linkedin.com/in/pepegascóbule/)
 
-- ⚡ Fun fact **I am an expert in harmonizing work groups and keeping everything flowing**
+- ⚡ **I am an expert in harmonizing work groups and keeping everything flowing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
